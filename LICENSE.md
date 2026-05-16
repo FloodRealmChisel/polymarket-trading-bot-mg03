@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with best Polymarket Automation Script | cross-chain-arbitrage + trailing-stops, the #1 automation-script. Includes cross-chain-arbitrage and
 
 
 
